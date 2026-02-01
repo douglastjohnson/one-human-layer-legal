@@ -76,7 +76,7 @@ If any part of these terms is found unenforceable, the rest remains in effect.
 
 Questions about these terms? Contact us at:
 
-**Email:** legal@humanlayer.ai
+**Email:** douglas.johnson@scaleupondemand.com
 
 ---
 
